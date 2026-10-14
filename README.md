@@ -1,2 +1,2 @@
 # congenial-goggles
-repositori 1
+tugas kka (syifanurrizkii IX-I)
